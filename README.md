@@ -1,5 +1,5 @@
 # 💫 About Me:
-HELLO!!!!<br>I'M SAMAR SINHA<br><br>🌱 I’m currently learning more about SQL<br>💬 Ask me about creative Power BI dashboard<br>⚡ Fun fact: If I am not working then I am probably playing video games<br>😊 Pronouns: He/Him<br>📲 How to reach me: LinkedIn - @samarsinha
+HELLO!!!!<br>I'M SAMAR SINHA<br> <br>💬 Ask me about creative Power BI dashboard<br>⚡ Fun fact: If I am not working then I am probably playing video games<br>😊 Pronouns: He/Him<br>📲 How to reach me: LinkedIn - @samarsinha
 
 
 ## 🌐 Socials:
